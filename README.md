@@ -2,7 +2,7 @@
 
 Submitted by: **Devin Chen**
 
-**Feast opf the Beast** is a website for Recipe Sharing
+**Feast of the Beast** is a website for Recipe Sharing
 
 Time spent: **6** hours spent in total
 
