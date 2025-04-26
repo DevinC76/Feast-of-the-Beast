@@ -1,4 +1,4 @@
-# *Feast opf the Beast*
+# *Feast of the Beast*
 
 Submitted by: **Devin Chen**
 
